@@ -28,6 +28,6 @@ Se você é um estudante interessado em se envolver em projetos práticos de des
 Para mais informações sobre o MackLEAPS e oportunidades de participação, entre em contato conosco:
 
 - **E-mail:** [fci@mackenzie.br](mailto:fci@mackenzie.br)
-- **Website:** [www.mackleaps.com.br](http://www.mackleaps.mackenzie.br)
+- **Website:** [www.mackleaps.mackenzie.br](https://mackleaps.mackenzie.br)
 
 Estamos ansiosos para colaborar e criar juntos! 🚀
